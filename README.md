@@ -12,9 +12,9 @@ Instagram: **isz_huan912**
 
 ------
 
-![Huan's GitHub stats](https://github-readme-stats.vercel.app/api?username=BL4CKEND-912&show_icons=true&theme=omni)
+![Huan's GitHub stats](https://github-readme-stats.vercel.app/api?username=Huan912&show_icons=true&theme=omni)
 
-![Anurag's GitHub stats](https://github-readme-stats.vercel.app/api/top-langs/?username=BL4CKEND-912&show_icons=true&theme=omni)
+![Anurag's GitHub stats](https://github-readme-stats.vercel.app/api/top-langs/?username=Huan912&show_icons=true&theme=omni)
 
 
 
