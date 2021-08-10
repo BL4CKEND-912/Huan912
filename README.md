@@ -8,7 +8,7 @@
 
 Discord: **SleepyWeeb#7291**
 
-Instagram:**isz_huan912**
+Instagram: **isz_huan912**
 
 ------
 
