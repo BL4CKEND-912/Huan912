@@ -6,7 +6,7 @@
 
 ### Contact :
 
-Discord: **SleepyWeeb#7291**
+Discord: **Huan912#7291**
 
 Instagram: **isz_huan912**
 
