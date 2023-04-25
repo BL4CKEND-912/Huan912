@@ -9,7 +9,7 @@
 
 Discord: **Huan912#7291**
 
-Instagram: **isz_huan912**
+Instagram: **itsHuan912**
 
 ------
 
