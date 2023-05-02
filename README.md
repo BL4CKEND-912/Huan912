@@ -12,8 +12,7 @@ Discord: **Huan912#7291**
 Instagram: **itsHuan912**
 
 ### Skills :
-C++ / Java / Node.js / LUA / HTML / CSS / PHP / SQL
-Video Edit (Include VFX)
+C++ / Java / Node.js / LUA / HTML / CSS / PHP / SQL / Video Edit (Include VFX)
 
 ------
 
